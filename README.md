@@ -1,3 +1,5 @@
+<img width="1920" height="1020" alt="Screenshot 2025-08-03 185536" src="https://github.com/user-attachments/assets/6afd77a2-48a6-49c6-a5ec-9c3445198635" />
+
 Check important info.
 ?
 
